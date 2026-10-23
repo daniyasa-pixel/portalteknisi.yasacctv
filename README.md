@@ -1,0 +1,1 @@
+# portalteknisi.yasacctv
